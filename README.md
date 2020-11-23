@@ -3,6 +3,8 @@
 
 暂时先提供一个激活码，更多激活码关注微信公众号：lycorisin
 
+每日更新，保证有用。
+
 ![公众号](https://uploader.shimo.im/f/EMbzqe1b5JSeNFD0.png!thumbnail)
 
 
